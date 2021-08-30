@@ -100,3 +100,77 @@ You needn't go there anymore.He already knows about it. 你不必去了，他已
 You should look around before you cross the street. 过马路前，你应该向四周看看。
 
 ### important
+A dog is always well-known as a clever and friendly animal. 在动物中，狗素以其聪明与和善而著称。
+A good memory is a great help in learning a language. 好的记忆力有助于语言的学习。
+A teacher should have patience in his work. 当老师应当有耐心
+About half of the fruit is ripe. 大约有一半的水果已经成熟了。
+Air pollution is more serious than water pollution. 空气污染比水污染更为严重
+Although very important,intelligence is not necessarily the key to success. 尽管聪明十分重要，但它未必是成功的关键。
+Are you willing to donate more money for the poor people? 你愿意为穷人捐赠更多的钱吗？
+As long as there is water,plants won't die quickly. 只要有水，植物就不会很快死亡。
+B
+Because there was heavy traffic,we were ten minutes late. 由于交通拥挤，我们晚了十分钟。
+Beijing Olympic Games can make Chinese people work harder. 北京奥林匹克运动会使得中国人民更加努力工作。
+But competitive swimming is just over one hundred years old. 但游泳比赛不过只有一百余年的历史。
+But it looks like something I would never buy. 但它看起来就像是我绝不会买的。
+But I've got room for only two of you in the house. 但是我家里只能住下你们其中的两个人。
+Business success depends on hard work. 事业上的成功依靠努力工作。
+By 1900,states had laws against selling cigarettes to young people. 到1900年，大部分州已经颁布了禁止向青少年出售香烟的法律。
+C
+Can I download this material without paying any money? 我可以免费下载这份资料吗？
+Can you express yourself clearly in English? 你能用英语清除表达自己的意思吗？
+China will build up a space station in ten years. 在十年内，中国将建一个太空站。
+Did you go fishing with your friends last Sunday? 上周日你跟朋友去钓鱼了吗？
+Do you often do your washing in the evening? 你经常晚上洗衣服吗？
+Do you think students should do a part-time job? 你认为学生应该做兼职吗？
+Do you mind my smoking here? 我在这里吸烟你介意吗？
+Do you still have anything that you don't understand? 你还有什么不明白的吗？
+Don't you mind my opening the window? 你不介意我打开这扇窗户吧？
+Don't you think smoking is harmful to your health? 你不认为吸烟有害健康吗？
+Does the computer have instructions on it? 电脑上面有使用说明吗？
+E
+Each year some of his money is given to the best scientists and writers of the world. 每年他的一部分钱都会奖给世界上最优秀的科学家和作家。
+Every student has free access to all the sources in the library. 每位学生都可以自由使用图书馆的所有资源。
+Everyone was in bed except me. 除了我，所有人都上床睡觉了
+Excuse me.Could you tell me how to get to the cinema? 请问电影院怎么走？
+F
+Fewer high school students are smoking now than a few years ago. 相比若干年前，现在吸烟的高中生少了。
+Fires may do more damage than the earthquakes. 火灾造成的损失可能比地震还严重。
+From the East Coast to the West Coast it is about 3,000 miles wide. 海岸线东西相距约三千英里。
+G
+Give us a few more minutes to decide. 再给我们一点时间来做决定。
+Go down this street until you reach the second street lights. 沿着这条街一直走到第二个交通灯处。
+H
+He asks me to stay in the room till he comes back. 他让我呆在屋里等他回来。
+He called the doctor and made sure they would meet at five. 他打电话和医生确认他们将在五点见面。
+He doesn't know what life means to him. 他不知道人生的意义。
+He does't like the way you talk to him. 他不喜欢你和他说话的样子。
+He had to leave early yesterday. 昨天他不得不早些离开
+He has been learning English for years. 多年来他一直在学英语。
+He has sympathy for all poor people. 他对所有的穷人都有一个同情心
+He has the habit of making notes while reading. 他有阅读时记笔记的习惯。
+He is a world famous pop star. 他是一位著名的世界流行音乐明星。
+He is a worldwide famous scientist. 他是一位世界著名的科学家。
+He is always making excuses for being late. 他总为他的迟到找借口
+He is always very active in student activities. 他在学校活动中一直非常积极。
+He's growing more like his father now. 他现在长的越来越像他爸爸。
+He is leaving China for Britain tomorrow. 他明天将离开中国去英国
+He is sweating all over. 他出了一身汗。
+He is thinking about moving to a new place. 他正在考虑搬到一个新的地方。
+He keeps looking at himself in the mirror. 他总是照镜子
+He knew the time of the meeting. 他知道开会时间。
+He lives in a small room with only one small window. 他住在一间只有一个小窗户的小房间里。
+He often went from town to town giving lectures. 他经常奔波于各个城镇作演讲。
+He offered to help us with our work. 他主动帮助我们工作。
+He stopped smoking. 他戒烟了
+He stopped smoke. 他停下来，开始吸烟。
+He tried many times to pass the examination,and in the end he successded.他多次尽力通过考试，最后成功了。
+He was pleased with the fine weather. 他因天气好而感到快乐。
+He was satisfied with his new car,and drove to work in it the very next day. 他对自己的新车感到很满意，第二天就开着去上班了。
+He was too tired to go on reading. 他太困了，无法再阅读了
+How do you spell your last name? 你的姓是如何拼写的？
+How long have you collected your stamps? 你集邮多久了？
+I
+I am very familiar with his name. 我很熟悉他的名字。
+I am wondering/I'm wondering/I don't know who broke the window. 我想知道是谁打坏了窗户。
+I am writing this letter to complain about the service in your hotel. 我此刻写这封信的目的是要投诉贵酒店的服务
