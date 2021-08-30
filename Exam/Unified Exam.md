@@ -1,5 +1,5 @@
 ## English to Chinese
-### important
+### very important
 A
 A friend of mine from high school is working in England now. 我高中的一个朋友正在英格兰工作。
 A lot of natural resources in the mountain area are to(will) be exploited and used. 那个山区有许多自然资源有待于开发利用
@@ -63,10 +63,40 @@ Please give this book to whomever comes first. 请把这本书给最先来的人
 R
 S
 She likes to help anyone who is in diffculty. 她喜欢帮助任何一个有困难的人。
+T
 Ted and William have lived under the same roof for five years. 泰勒和威廉已经在同一个屋檐下生活五年了。
 The doctor had no choice but reach out to their colleagues across the nation. 那个医生别无选择，只能向全国的同行求助。
 The doctor told me to have more water. 医生告诉我多喝水
 The friend saw everything but did not say a single word. 这位朋友目睹了一切，却一言不发。
 The more passions we have,the more happiness we are likely to experience. 我们的激情越多，我们就有可能体验到越多的快乐
 The most common samples of inorganic materials are the gases of the atmosphere,water,rocks,etc. 大气中的气体、水、岩石等都是无机物中最普通的实例。
+The Olympic Games is an international sports event that takes place every four years. 奥林匹克运动会是国际性的体育盛事，每四年举办一次
+The People's Republic of China(PRC),founded on October 1,1949,covers an area of 9.6 million square kilometers. 中华人民共和国成立于1949年10月1日，国土面积约960万平方公里。
+The students are encouraged by their teacher to do more listening,reading writing. 老师鼓励学生多听、多读、多写。
+The traffic jams during morning and afternoon rush hours are a headache in big cites now. 上下班高峰期的交通拥堵问题是大城市目前面临的一个棘手问题。
+There is a large amount of energy wasted due to friction(摩擦). 由于摩擦而损耗了大量的能量
+They thought that there must be something wrong with their TV set. 他们认为他们的电视机一定坏了
+This box can hold more books than that one. 这个箱子比那个箱子能装更多的书
+This new country hopes to establish friendly relations with all its neighbors. 这个新成立的国家希望和所有邻国建立友好关系
+This place has plentiful material resources. 这个地方有丰富的物质资源
+Though it was late,they kept on working. 尽管已经很晚了，他们还在继续工作。
+Transistors are small in size and light in weight. 晶体管的体积小、重量轻。
+Trees need water to grow. 树木需要水才能生长
+V
+Various substances differ widely in their magnetic(磁性的) characteristics. 各种材料的磁性有很大的不同。
+W
+Wang Li's father has taught English here since he graduated from Peking University. 王丽的父亲从北京大学毕业后就一直在这里教英语
+We must take some measures to control the pollution. 我们必须采取措施来控制污染
+We should encourage him to have confidence in himself. 我们应该鼓励他要有自信心。
+What kind of life do most people enjoy? 大部分人都喜欢什么样的生活？
+What time do you go swimming every day? 你每天几点去游泳？
+Who can help me clean the room? 谁能帮我打扫房间
+Would you mind closing the window for me? 你能帮我关一下窗户吗？
+Would you please help me with this heavy box? 你能帮我抬一下这个很沉的箱子吗？
+Y
+You and your team can discover the answer to problems together.你和你的团队能够共同发现问题的答案。
+You'd better do that again. 你最好再做一次。
+You needn't go there anymore.He already knows about it. 你不必去了，他已经知道那件事了。
+You should look around before you cross the street. 过马路前，你应该向四周看看。
 
+### important
