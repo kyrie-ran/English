@@ -174,3 +174,218 @@ I
 I am very familiar with his name. 我很熟悉他的名字。
 I am wondering/I'm wondering/I don't know who broke the window. 我想知道是谁打坏了窗户。
 I am writing this letter to complain about the service in your hotel. 我此刻写这封信的目的是要投诉贵酒店的服务
+I'm certain he'll go to see the film,because he's bought a ticket. 我确信他会去看电影，因为他已经买票了。
+I'm finishing my second year of studies. 我即将完成第二年的学习。
+I'm going to buy a monthly ticket tomorrow. 我想明天买张月票
+I'm going to visit a friend of mine this Sunday. 这周日我要去拜访一位朋友
+I'm having a headache now. 我现在有点头疼
+I'm looking forward to your visit to China. 我在盼望你对中国的访问
+I'm sur we'll have a good time. 我确定我们会过得很愉快
+I'm very much eager to improve my oral English 我非常渴望改进我的英语口语
+I came back because of the rain. 因为下雨我就回来了
+I can't go with you today because I'm too busy. 今天我不能跟你一块去了，因为我太忙了
+I can't remember where I left my English book. 我想不起我把英语书放在哪了
+I could hardly agree to what you said just now. 我不能同意你刚才说的话
+I do want to know what really happened. 我确实想知道到底发生什么了
+I don't think he can operate the new type of computer. 我认为他不会操作这种新型计算机。
+I don't want to spend five dollars on a cup of water. 我不想花五美元买一瓶水。
+I expect she will have changed her mind by tomorrow. 我预料到明天为止她会改变她的想法。
+I feel lonely without you. 没有你，我感到孤独
+I feel satisfied with my life. 我对自己的生活很满意
+I got married ten years ago. 十年前，我结婚了
+I had no choice. 我别无选择
+I have a pain in my back. 我的背部很疼
+I have no idea about it. 对此我一点都不知道
+I have no interest in what they say about me. 我对别人怎么说我不感兴趣。
+I've been so busy lately.I haven't had time to call anybody. 我最近一直很忙都没有时间给别人打电话。
+I've got accustomed to the weather in Shanghai. 我已经适应了上海的这种天气
+I've never haerd such a good music in a game. 我在游戏里从未听过这样好的音乐。
+I look forward to hearing from you. 我期待着收到你的信
+I looked for the book on the desk but it was nowhere. 我寻找桌上的书，但没找到。
+I need to buy some 50-cent stamps. 我需要买一些50美分的邮票。
+I need you to fill out the top portion of the form first. 我需要你先填写表格的上半部。
+I picked up the bag to protect my face from the smoke and heat. 我捡起包捂在脸上挡住烟和热。
+I prefer tea to coffee. 比起咖啡，我更喜欢茶
+I promise you that I will do everything I can to help him. 我保证尽一切努力帮助他。
+I saved the baby and became a hero. 我因救了这个婴儿而成了英雄。
+I think she will change her mind tomorrow. 我想她明天将会改变主意的。
+I think our dream will become true. 我认为我们的梦想会实现的。
+I think the picture shows us how fruit is neccessary to life. 我认为这幅图告诉我们水果在生活中不可缺少。
+I used the bag to protect my face from the smoke and heat. 我用包捂在脸上挡住烟和热。
+I was born in the city which you visited last year. 我就出生在去年你参观过的那个城市。
+I was too excited to say a word in front of him. 我当时太兴奋了，以至于在他面前什么也说不出来了。
+I will continue my learning, though I am tired of learning English. 尽管我很烦英语，我还是要学它。
+I'll be waiting for you at the library this time tomorrow. 我明天这个时间在图书馆等你。
+I'll call you as soon as I arrive. 我一到就给你打电话
+I'll have to try using the search engines. 我得试着用这个搜索引擎
+I'll write to you as soon as I get there. 我一到那儿就给你写信。
+If you travel by ship across the pacific, you cross the International Date Line. 如果你乘坐轮船横渡太平洋，你会穿越国际日期变更线。
+In most country,animals are in a worse positon than human being. 在大多数国家，动物比人类位于更糟糕的处境。
+In spite of his inborn disability,Eddie seems to have a good sense of music. 尽管安迪天生残疾，但是他对音乐似乎悟性很好。
+In the eighteenth century young ladies in Italy knew history and geography little.在十八世纪，意大利少女的历史知识、地理知识一般来说非常匮乏。
+In the modern Western world,many people are too busy to think about eating properly. 如今在西方，人们过于忙碌，无暇考虑如何合理饮食。
+In the past few days,news of victory has kept pouring in. 再过去的几天里胜利的消息不断传来。
+In the world,soccer of football is the most popular sport. 在世界上，足球是最受欢迎的体育运动。
+Is this the magazine which you want to borrow? 这就是你要借的那本杂志吗？
+It has not been decided yet whether they will take part in our experiment. 他们是否参加我们的试验还没有决定
+It is certain that we shall produce this kind of engine. 我们将生产这种发动机，这是肯定无疑的。
+It is known to all that exercises are good for health. 众所周知，锻炼有益健康。
+It is necessary to take medicine on time. 按时吃药是必要的
+It is no good hoping to read all these books. 指望能够读完所有这些书是毫无意义的
+It is not necessary to do this work. 没有必要做这项工作。
+It's never too late to learn. 活到老，学到老
+It's raining all day! 雨下了一整天。
+It takes a lot of time to learn a foreign language. 学一门外语需要很长时间。
+It was a hard job,but he did not mind. 这项工作很艰苦，但他并不在乎。
+J
+Jane has told me a lot about her trip. 珍妮告诉了我好多关于她旅行的事。
+Jenny is fond of reading and often borrows books from the city library. 珍妮喜欢读书，经常从市图书馆借书。
+Jim will go to his teacher whenever he has questions. 吉姆一有问题就找他老师。
+John has been teaching English here since he came to China in 2003. 约翰2003年来到中国后就一直在这教英语
+Just because you like it,it doesn't mean I will. 你喜欢它，并不意味着我也会喜欢。
+L
+Let's find a place to shelter before the rain or we'll get wet. 我们找个地方躲雨吧，不然就淋湿了
+Let's sit over here until it's time for you to board. 我们就在这坐到你上飞机的时间。
+Li Bai is one of the greatest poets that have ever lived in China. 李白是中国有史依赖最伟大的诗人之一。
+Li Ming is a friend of mine whom I have known since childhood. 李明是我从小就认识的以为朋友
+M
+Many changes are taking place in the United States. 在美国正发生着许多变化。
+Many schools will not open for lessons until the beginning of September. 很多学校到九月初才开学
+Many young people want to be volunteers for Beijing Olympic Games. 许多年轻人想做奥运会的志愿者。
+My grandpa is used to getting up early. 我爷爷习惯早起
+My idea is that this experiment should be called off. 我的意见是这个实验应该取消。
+My problem is that I don't have much time to do the work. 我的问题在于我没有多少时间来做这项工作。
+N
+Never had he thought that the project would have been completed so fast. 他从来没预料到这项工程会完成得这么快。
+No matter how much it cost, he had to get the car fixed. 无论费用多高，他也不得不去修车。
+Nothing in the world moves faster than light. 世界上没有什么东西比光走得更快。
+Not all Americans are intersted in sports,of course. 当然，并非所有美国人都对运动感兴趣。
+Not all the machines here are produced by our factory. 这里的机器并不全是我厂生产的。
+O
+Okay,and I need a pen to fill out the address. 好的，我还得借支笔来填地址
+On that flight were a mother and her four-year-old son,whose name was Jeffrey. 那个航班上有一个母亲和她叫杰弗瑞的四岁儿子。
+On their way they came to a shop where bread was sold. 他们在途中来到一家面包店。
+Once all the information is completed, you sign here. 所有内容都填完之后，你就在这签名
+One can never succeed without enough confidence in himself. 一个人如果对自己没有足够的信心就无法成功。
+Only on weekends,Central Park is closed to cars. 只有在周末，中央公园禁止汽车入内
+Only those who work hard will be in a better position in the competition. 只有勤奋者才能在这场竞争中处于更为有利的地位
+Open the window and let the fresh air in. 打开窗户让新鲜空气进来。
+Our teacher always encourages us to speak English bravely. 我们的老师总是鼓励我们大胆讲英语。
+People usually hate mice,but one mouse has won the hearts of the people all over the world——the famous Mickey Mouse. 人们通常是憎恨老鼠的，但是有一只老鼠赢得了全世界人的心——著名的米老鼠
+Playing the sport you like is considered an essential part of a person's life. 进行一项自己喜欢的体育运动被认为是人生中重要的一部分。
+Please call me back when you are free. 请你有空的时候给我回个电话。
+Please move your chair to the window. 请把你的椅子移到窗边
+Please ring me up tomorrow morning. 请在明天早上给我打电话
+Promise me never to be late again. 答应我以后再也不要迟到了
+R
+Riding bicycles can save energy. 骑自行车能够节约能源
+S
+Scientists think(assume) that there is no life on the Mars. 科学家们认为火星上没有生命
+She always laughs at a good joke. 她听到了好的笑话，总是要笑的
+She begins booking as soon as she gets home. 她一到家就开始做饭
+She could not follow me when I spoke to her. 我跟她讲话时，她听不懂我的话
+She is used to living in the countryside. 她习惯住乡下
+She likes Mike a lot,but she doesn't want to get married so early. 她很喜欢迈克，但她不想那么早就结婚。
+She looks lovely when she is happy. 她高兴的时候看起来很可爱
+She was the only daughter and the youngest child of five. 她是家里唯一的女儿，也是五个孩子中最小的。
+Since the earth looks like a ball,the sun can shine on only half of it at a time. 由于地球看起来像个球，太阳在同一时刻只能照到他的一半
+Some football teams will have games there. 一些足球队将在那比赛。
+Some of her pictures were shown in an art exhibition in Shanghai when she was 4 years old. 她4岁的时候，她的一些画就在上海的一个艺术展览中展出过。
+Some parents even stop their children from meeting their good friends. 有些父母甚至不让自己的孩子去见他们的好朋友
+Some people find it difficult to ask for help. 有些人发现向他人求助有困难
+Stay here before I get back. 待在这等我回来
+Students can study by themselves through school network. 学生可以通过学校网络自学
+Success in business depends on hard work. 事业上的成功取决于努力工作
+T
+Talking for a long time makes me tired. 长时间的谈话使我感到疲惫
+That team withdrew from the match as a protest against the unfair referee. 那个球队退出了比赛，来抗议那个不公正的裁判。
+The car accident was caused by carelessness. 这起车祸是由于粗心造成的。
+The cause of the fire was carelessness. 起火的原因是不小心。
+The doctor is very patient with his patients. 这个医生对他的病人很有耐心。
+The doctor performed an operation on him as soon as he was sent to the hospital. 他被送到医院后，医生立即给他做了手术。
+The earth on which we live is shaped like a ball. 我们居住的地球形状像一个大球。
+The earthquake in Sichuan made Chinese peple unite as one. 发生在四川的地震使中国人民团结一心。
+The girls are busy making preparations for the weekend party. 女孩们正忙着准备周末的聚会。
+The glass was broken into pieces. 玻璃碎成碎片。
+The jury(陪审团) was composed of eight white people and four black people. 陪审团由八位白人和四位黑人组成。
+The little boy wanted to exchange his toy car for my cake. 这个男孩想用他的玩具汽车换我的蛋糕。
+The man-made satellite(卫星) made by China is working very well. 这个中国制造的人造卫星运行良好。
+The moon looks much bigger than any other stars in the sky.月亮看起来比天空中任何其他的星星都要大的多。
+The more I study,the less I seem to learn. 我读的书越多，好像学到的东西就越少。
+The more money I make,the happier I will be. 挣的钱越多，我就会越快乐
+The old man is in his late sixties. 老人近七十岁
+The old man was knocked down by a taxi when he was crossing the street. 老人在过马路时被一辆出租车撞倒了。
+The pen that I'm writing with is a birthday present from my sister. 我正在用的这支钢笔是我姐姐送给我的生日礼物。
+The plane took off very smoothly. 飞机很平稳地起飞了
+The polluted air becomes poisonous and dangerous to health. 污染的空气变的有毒，对人的健康有害。
+The price of gasoline will come down in Chinese market. 中国市场上的汽油价格将会下降
+The prices of vegetables are different from place to place. 蔬菜的价格因地而异
+The reason why he failed is that he relies on others too much. 他失败的原因是他太依赖别人了
+The school therefore plans games and matches for its pupils. 因此学校为学生们安排游戏和比赛。
+The school management must be improved. 学校管理必须改进
+The teacher came earlier than expected. 老师比预期来得早
+The whole process required a great deal of effort,skill and luck. 整个过程需要很大的努力，需要高度的技巧，还需要运气。
+Their parents don't know them as well as their friends do. 他们的父母不像朋友那样了解他们。
+There's a party at my house this Friday 这周五在我家有个聚会
+There is only some old furniture in the room.  这个房间里只有几件旧家具
+There is something urgent for you to do right now. 有件急事要你立即去做。
+These five boys failed in their English exam last term. 这个五个男孩上学期的英语考试没过。
+These goods are not up to standard. 这些商品未达到标准。
+These two students from our school have been admitted to Beijing University. 我们学校这两个学生已经被北京大学录取了
+They are ordinary people,but did a great job. 他们都是普通人，却做了件不平凡的工作。
+They are working hard to turn dreams into reality. 他们正在努力把梦想变成现实。
+They enjoyed themselves on the party. 他们在聚会上过得很愉快。
+They questioned both men but neither of them could speak English. 他们审问了这两名男子，但这两个人都不会说英语。
+They were sitting in the park,playing cards. 他们坐在公园里玩扑克牌。
+Think it over before you speak. 先考虑一下再说。
+This custom has a long tradition. 这个习俗历史悠久
+This is the most wonderful day of my life,because I'm here with you now. 今天是我生命中美好的一天，因为我此时此刻和你在一起。
+This is the worst hospital I have ever seen. 这是我见过的最差的医院。
+This one is pretty,but it costs too much. 这个很漂亮，但太贵了
+This pair of shoes cost me 260 Yuan. 这双鞋花了我 260 元钱
+This TV channel has too many commercials. 这个电视台频道广告太多了。
+There hundred dollars is not enough to buy this typewriter. 用300美元来买这台打字机可不够。
+Tom likes playitng basketball but he can't play well. 汤姆喜欢打篮球，但他打得不好。
+Travel broadens the mind. 旅行可以开阔眼界
+Traveling by train is slower than by plane, but it has its advantages. 乘火车旅行比乘飞机慢一些，但是它也有自己的优势。
+Try hard or you'll fail the test. 努力点，否则你考试及不了格
+W
+Wait here for further information. 在此等待进一步消息。
+We all like her because she is very helpful. 我们都喜欢她，因为她乐于助人。
+We are from mainland China. 我们来自中国大陆
+We are getting ready for our English Examination. 我们正在为英语考试做准备。
+We are more convinced than ever that the reform and open-door policy is correct. 我们比任何时候都坚信改革开放政策是正确的。
+We are short of time and money. 我们缺时间和资金。
+We're running behind schedule by about 15 minutes. 我们大约误点15分钟
+We cannot tell when an earthquake is coming. 我们不能断定地震什么时候发生。
+We enjoyed ourselves very much at the party. 我们在玩会上玩的很愉快
+We should adapt ourselves to the new surroundings. 我们应当使自己适应新的环境。
+We should make best use of time. 我们要充分利用时间
+We used to live near a big park. 我们曾经住在一个大公园附近。
+Were there any phone calls for me while I was out? 我不在时，有人打电话给我吗？
+What did I say to cause you to do that? 我说了什么使你这样做？
+What do you think of my corporation? 你觉得我的公司怎样？
+What's your nationality, sir? 先生，您是哪国人？
+When are you going to get your hair cut? 你打算什么时候去理发？
+When I had just gone out of the building, it began to rain. 我刚走出大楼，天就下雨了。
+When I was young,I'd listen to the radio,waiting for my favorite songs. 我小时候常听收音机，等我最喜欢的歌。
+When she got back home,she showed her new beautiful hat to her husband. 她回到家后给她丈夫展示了她漂亮的新帽子。
+When she got home that evening,she showed her husband the beautiful hat she had bought. 那天傍晚她回家后，给丈夫看她买的那顶漂亮的新帽子。
+When she left school,she went first to Britain. 在她离开学校后，她一开始去的是英国。
+When were the Olympic Games founded? 奥运会是何时创办的？
+Who's going to answer the phone? 谁去接电话？
+Who's going to answer the door? 谁去开门？
+"Why does the parrot cost so much?" the man asked. 这个人问道：”这只鹦鹉为什么这么贵？“
+Why,do you want me to change the channel? 怎么了，你要我换个频道吗？
+Without water,there is no life on the earth. 没有水，地球上就没有生命。
+Wisdom is much more important than knowledge. 智慧比知识重要的多。
+Would you like some mineral water? 你想要矿泉水吗？
+Would you mind turning down the radio? 你介意把收音机声音调低点吗？
+Would you mind waiting outside? 你介意在外面等吗？
+Y
+Yeah,but they play the same songs over and over again. 没错，但他们总重复播放同一首歌。
+You'll find in English some words can be remembered more easily than the others. 你会发现英语里有些词比其他的词容易记忆
+You must always remember not to cheat in exams. 你们必须时刻牢记考试时不要作弊。
+You ought not to smoke so much. 你不应该抽这么多烟。
+Young persons under 25 make up half of the American population. 25岁以下的年轻人占到美国人口的一半以上。
+Your composition is well written,but there is still room for improvement. 你的作文写得不错，但是还有改进的余地。
