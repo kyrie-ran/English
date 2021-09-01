@@ -389,3 +389,25 @@ You must always remember not to cheat in exams. 你们必须时刻牢记考试�
 You ought not to smoke so much. 你不应该抽这么多烟。
 Young persons under 25 make up half of the American population. 25岁以下的年轻人占到美国人口的一半以上。
 Your composition is well written,but there is still room for improvement. 你的作文写得不错，但是还有改进的余地。
+
+### Unimportant
+A dolphim is always well-known as a clever and friendly animal. 在动物中，海豚素以其聪明与和善而著称。
+A few weeks later the young lady returned, looking worse than ever. 几周后这位年轻女士回来了，神色看起来比以往更糟。
+A friend to all is a friend to none. 滥交者无友
+A gas has neither definite size nor definite shape. 气体即没有一定的体积，也没有一定的形状
+A good diet consists of nourishing food and it gives all the vitamis. you need. 健康饮食包括营养食品，它提供的人体必需的维生素
+A good knowledge of English will improve your chances of employment. 英语好将有助于增加你的就业机会
+A good mother is worth a hundred schoolmasters. 一位好母亲胜过百名教育家。
+A great man is always willing to be little. 伟人总是甘当小人物
+A just cause enjoys abundant support while an unjust cause finds little. 得道多助，失道寡助
+A light heart lives long. 开朗者长寿
+A mother's love is like a circle;it has no beginning and no ending. 母爱就像一个圆，没有起点，也没有终点。
+A tall building will be put up on this empty space. 这块空地上将兴建一座高层建筑
+An eye for an eye,and a tooth for a tooth. 以眼还眼，以牙还牙
+After a series of experiments important phenomena have been proved. 一系列试验之后许多重要现象被证明了
+All is fish taht comes to his net. 来者不拒，照单全收
+All's well that ends well. 结局好的就算好
+All the goods are priced at half of their original cost. 所有的货物的价格都是原来的一半
+Although he was wealthy,he was very mean. 尽管他很富有，但是很吝啬
+Another book by Professor Smith came out last month. 上月史密斯教授又出了一本书
+At once he recognized it was Tom who lives just next to him. 他立刻认出正式住在他家隔壁的汤姆
