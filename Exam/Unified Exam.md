@@ -391,6 +391,7 @@ Young persons under 25 make up half of the American population. 25岁以下的�
 Your composition is well written,but there is still room for improvement. 你的作文写得不错，但是还有改进的余地。
 
 ### Unimportant
+A
 A dolphim is always well-known as a clever and friendly animal. 在动物中，海豚素以其聪明与和善而著称。
 A few weeks later the young lady returned, looking worse than ever. 几周后这位年轻女士回来了，神色看起来比以往更糟。
 A friend to all is a friend to none. 滥交者无友
@@ -411,3 +412,47 @@ All the goods are priced at half of their original cost. 所有的货物的价�
 Although he was wealthy,he was very mean. 尽管他很富有，但是很吝啬
 Another book by Professor Smith came out last month. 上月史密斯教授又出了一本书
 At once he recognized it was Tom who lives just next to him. 他立刻认出正式住在他家隔壁的汤姆
+B
+Being on sea,sail;being on land,settle. 随遇而安
+Big mouthfuls often choke. 贪多嚼不烂
+Books and friends should be few but good. 书和友，贵精不贵多。
+Both fresh air and clean food are indispensable to us. 新鲜空气和干净的食物两者对我们是不可以缺少的。
+But first he wanted to find out whether they deserved his help. 但首先他想弄清楚他们是否值得他帮助。
+But for the bad weather, we would have got home half an hour ago. 如果不是由于天气不好，我们半个小时前就到家了。
+C
+Can you imagine living without electricity? 你能想象没有电的生活吗？
+Can you put me in the picture about the World Cup Football Match? 你能给我讲讲关于世界杯足球赛的状况吗？
+Chatting on the Internet is not only wasting time, but also doing harm to our health. 上网聊天不仅浪费时间，而且损害健康。
+Christmas is the most important festival in the west. 圣诞节是西方最重要的节日。
+D
+Did you get that E-mail from me? 你收到我发的那封电子邮件了吗？
+Don't believe whatever he tells you. 无论他告诉你什么都不要相信。
+Don't leave your little sister alone at home. 不要把你小妹妹一个人留在家里。
+Don't put all your eggs in one basket. 勿孤注一掷
+E
+East or west,home is best. 管他东方或西方，家是最好的地方
+Eat at pleasure,drink with measure. 进食可随意，饮酒要适量
+Every day,we're finding new ways for technology to enrich people's lives. 每天我们努力发明新技术，以便改善人们的生活。
+Excuse me.Where's the nearest police station? 劳驾，离这儿最近的派出所在哪里？
+F
+Far more smokers than non-smokers die of lung cancer. 死于肺癌的吸烟者比不吸烟者多得多。
+Few of them believe you. 他们当中几乎没人相信你
+Food is as important to health as air. 食物对于健康同空气一样重要。
+Forgive thers,but not yourself. 宽以待人，严以律己
+Girls in some countries are not so well bred as boys are. 有些国家女孩不像男孩那样受到良好的教育。
+Go on walking until you reach the end. 继续前行，一直到终点
+H
+Had it not been for the alarm clock,she wouldn't have been late. 如果不是因为闹钟不响，她就不会迟到了。
+Hardly had I gone out of the building when it began to rain. 我刚走出大楼天就下雨了
+Hardly had I reached the station when the train started. 我刚到车站，火车就开了
+Hardly had we arrived when it began to rain. 我们一到就下雨了
+He asked me some personal questions,but I would never answer them. 他问了我几个个人问题，我根本不愿回答。
+He dismissed the meeting without a closing speech. 他没有致闭幕词就宣布结束会议。
+He doesn't come to school because he has caught a bad cold. 他没来上学是因为他得了重感冒。
+He found his father sitting at the back of the classroom. 他发现父亲坐在教室的后面。
+He goes to work early everyday for fear that his boss would be angry. 他每天很早就上班，免得老板生气。
+He had a traffic accident last week. 他上星期出了一起交通事故。
+He is always leaving things about. 他老是把东西乱扔
+He is cleverer than anyone else in his class. 在班上他比任何人都聪明
+He is just looking at that kid who keeps falling asleep in the back. 他只是在看后面那个一直在睡觉的学生。
+He's used to going to work by bike. 他现在已经习惯了骑自行车上班。
