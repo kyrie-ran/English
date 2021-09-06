@@ -456,3 +456,120 @@ He is always leaving things about. 他老是把东西乱扔
 He is cleverer than anyone else in his class. 在班上他比任何人都聪明
 He is just looking at that kid who keeps falling asleep in the back. 他只是在看后面那个一直在睡觉的学生。
 He's used to going to work by bike. 他现在已经习惯了骑自行车上班。
+He's looked nervous because he had never worked as a teacher. 他真诚的向每位老师一一道歉
+He nearly killed the man who was crossing the street. 他几乎撞死那位正在过马路的人。
+He often forgot to turn off the lights before. 以前他经常忘记关灯。
+He prefers watching TV to listening to the radio. 与收音机相比，他更喜欢看电视。
+He sets out his ideas clearly in this book. 他在这本书里清楚的列出了他的观点
+He talked for a while to a few new arrivals. 他和几个新来的人交谈了一会。
+He'll come if it doesn't rain tomorrow. 如果明天不下雨他就来
+He wants to see nobody unless there is a previous appointment. 他不想会见任何人，除非事先有约。
+He was surprised to find that the river had become clear. 他吃惊地发现河水变清了
+He who makes no mistakes makes nothing. 不犯错的人必将一事无成
+He would not be angry if he knew what had happened. 要是他知道了事情经过就不会生气的。
+Hi. What can I get for your dinner,sir? 你好，先生。你晚餐要吃什么？
+However you many work hard,the boss will not be fully satisfied. 无论你有多么努力，老板总不会完全满意。
+How long will it take before the package arrives in America? 这包裹要多久才回到美国
+I
+I'm afraid I can't do as you said. 恐怕我无法按你说的去做
+I'm going to run for the bus as soon as the bell rings. 铃声一响，我就要去赶公交车
+I'm not an English major student. 我不是英语专业的学生
+I'm now a distance education student. 我现在是一名远程教育学员。
+I'm usually just using the search engines to look up information. 我通常只是用搜索引擎找一些资料。
+I came here at least once a month. 我一个月至少来这里一次。
+I didn't know what you said to him. 我不知道你和他说了什么。
+I enjoyed this meal thoroughly. 我非常喜欢这顿饭
+I have never been treated like this before. 我从未受过这种待遇。
+I have no idea what to say. 我不知道说什么好。
+I have learned from him what I can't learn in class. 我从他那里学到了课堂上学不到的东西。
+I've read your story and I like it very much. 我已读过你写的故事，并且很喜欢它。
+I have something important to tell you. 我有些重要事情要告诉你。
+I happened to pass by when the boy fell into the river. 那个小孩落入河里时，我正好经过那里。
+I must get my radio fixed. 我得请人把我的收音机修理一下。
+I regret to inform you that we are unable to offer you a job. 很遗憾地告诉你，我们无法雇用你。
+I started looking after other children whose parents went out to work. 我开始帮那些外出工作的父母照看孩子。
+I want to take a walk along the river bank,singing my favorite songs. 我想边在河边散步，边唱我喜欢的歌。
+I was amazed to find him there as well. 我惊奇地发现他也在那里。
+I was wondering if you could help me to find this book. 我不知道你是否能帮助我找到这本书。
+I was walking in the street when someone called my name. 我在大街上走着的时候，忽然有人喊我的名字。
+I will make sure that every student has a copy of the book. 我一定会确保每个学生都有一本这种书。
+I'll go with you and make sure you understand it. 我随你去并确信你会理解会用才行。
+I'll try not to take up too much of your time. 我尽量不占用你太多的时间。
+I would be very grateful for information about entry to your college. 若能寄给我贵校的入学申请材料我将十分感激。
+I'd like to make a reservation for one passenger on April 20 to Tokyo.我想预定一个四月二十日到东京的机位。
+If he had not broken his tooth,he would not be in hospital now. 如果他没有把牙齿弄坏，现在就不在医院了。
+If I find your passport,I will phone you immediately. 如果我找到了你的护照，我马上就打电话给你。
+If she finds out you spilled ink on her coat,she'll blow her stack. 如果她发现你在她上衣洒了墨水，她会大发脾气的。
+If we don't write often,we will lose touch. 如果我们不经常写信，我们就会失去联系。
+If you are failing to plan,you are planning to fail. 如果你没有订好计划，你就在计划失败。
+If you don't work hard while you are young,you will regret when you are old. 少壮不努力老大徒伤悲
+In the United States a lot of college students do not live at home. 在美国，许多大学生不在家住。
+It doesn't look like something I would throw away. 它看起来不像是我要扔掉的东西。
+It doesn't matter whether he comes of not. 他来或不来都无关紧要
+It's a custom for people to shake hands when they meet for the first time. 初次见面握手是一个风俗。
+It's always a pleasure to see many friends here in London. 很高兴在伦敦见到许多朋友
+It's easy to say,but difficult to do. 说起来容易，但做起来难。
+It's not safe playing in the streets. 在街上玩耍不安全。
+It is not necessary to do this work. 没有必要做这项工作
+It's still raining today! 今天还在下雨
+It's their duty to look after these young trees. 他们的责任是照看这些小树。
+It's time we said goodbye to them. 我们该向他们告别了
+It only takes me three minutes to dress in the morning. 早上我只花三分钟穿衣
+It was the first time that he had learned how to drive a car. 这是他第一次学习驾车。
+It'll be our honor if you can benefit from the book. 如果您能从本书获益，这将是我们的荣幸。
+J
+Jack works much harder than before. 杰克学习比以前努力多了
+James could not look after himself. 詹姆斯不会照顾自己。
+Jane moved to New York at the end of last month. 简在上月底就移居纽约了
+L
+Let's try something different. 让我们尝尝其它不同口味。
+Lincoln was the US president who set the slaves free. 林肯是解放黑奴的那位美国总统。
+Little is know about the life of those people. 对这些人的生活几乎一无所知。
+Lookers-on see most of the games. 当局者迷，旁观者清
+M
+Many a true word is spoken in jest. 笑谈之中有至理。
+Many people complain that computers are taking over their jobs. 许多人抱怨说计算机正在接管他们的工作。
+Many people prefer living in the country to living in the town. 许多人喜欢住在农村而不喜欢住在城镇。
+Mike didn't leave until Tom got back. 麦克一直等到汤姆回来才离开
+Money is not the only thing that brings us happiness. 金钱并不是唯一能给我们带来幸福的东西。
+Most people live too far from downtown to travel by bike. 大多数人住得离市区太远，没法骑自行车往返。
+Mr. Lin assigned too much homework today. 今天林老师留的家庭作业太多了。
+Mr. Smith knew Jack didn't look at the others because he was nervous. 史密斯先生知道杰克不敢看别人是因为紧张。
+My boss was favorably impressed by my work. 我的工作给我老板留下了很好的印象
+N
+Never mix business with pleasure. 工作娱乐不要混同。
+Nobody has come to see us since we bought these dogs. 我们买了这些够以来，没有人来看我们。
+No matter what you say,I won't believe you. 无论你说什么，我都不相信。
+No matter what happens,I'll be your best friend. 无论发生什么，我都是你最好的朋友。
+Nobody can remember everything. 没人能记住这一切
+None of us live in London. 我们中间没有一个人住在伦敦。
+O
+Once the work is finished,we'll be carefree. 工作一旦完成，我们就无忧无虑了。
+One is never too old to learn. 活到老，学到老
+One is known by the company he keeps. 见其伴知其人。
+Once you've made a promise,you must carry it out. 一旦许下诺言，就应该旅行它。
+Outside it was pitch dark and it was raining cats and dogs. 外面一团漆黑，大雨倾盆。
+Our library is as big as theirs. 我们的图书馆和他们的一样大。
+P
+Please tell me briefly what happened. 请简要地告诉我发生了什么事情。
+R
+Respect is given to where respect is due. 尊敬只给予值得尊敬的人。
+S
+She has a good eye for detail. 她细致缜密
+She has been a lawyer since she finished college. 她大学毕业后一直当律师
+She has only a small room to live in. 她只有一个小房间住。
+She is the manager in charge of personnel. 她是负责人事工作的经理
+She looks very tired,she must have been on night shift. 她看起来很疲惫，肯定是上夜班了。
+She runs six miles every morning,rain or shine. 无论雨晴，她每天早晨都跑六英里。
+Something must be done to prevent the pollution. 一定要设法阻止污染
+Strike while the iron is hot. 趁热打铁
+Suddenly a smart idea came to his mind. 他突然想起了一个妙主意
+T
+Take an umbrella with you in case of rain. 带上雨伞以防下雨
+Take some medicine with you in case you catch cold. 随身带点药，以免感冒。
+Take this empty box away and bring me a full one. 把这只空盒子拿走，给我拿一个满的来。
+Take time while time is,for time will be away. 机不可失，时不再来
+Teaching others teaches you yourself. 教学相长。
+Thanks to these measures, the smog in London is gone. 多亏了有了这些措施，伦敦的烟雾已不复存在了。
+That box is too small to hold all these things. 那盒子太小，装不下所有这些东西
+The Antarctic is covered with ice all year round. 南极洲终年为冰雪覆盖
