@@ -573,3 +573,79 @@ Teaching others teaches you yourself. 教学相长。
 Thanks to these measures, the smog in London is gone. 多亏了有了这些措施，伦敦的烟雾已不复存在了。
 That box is too small to hold all these things. 那盒子太小，装不下所有这些东西
 The Antarctic is covered with ice all year round. 南极洲终年为冰雪覆盖
+The belief that books make one clever has been proved. 书能使人聪明的这种想法也得到证实
+The best time to read English is in the morning. 朗读英语的最佳时间是在早晨
+The child had to work at the age of 10 in order to earn his living. 为了谋生，这孩子十岁就干活了。
+The company directors have been driven to the airport. 公司的董事们被轿车送往飞机场
+The cupboards in her kitchen were full of things she did not need. 她厨房的橱柜中放满了她不需要的东西。
+The crops failed because the season was dry. 因为气候干燥，作物歉收
+The doctor said there was nothing wrong with his eyes. 医生说他的眼睛没毛病
+The food is not as fresh as advertised. 这种食品不像广告宣传的那样新鲜
+The majority of us agree with you. 我们绝大多数与你意见一致。
+The more educated they are,the better they care for their families. 他们受教育的程度越高，就越能更好的照顾他们的家庭
+The more we speak English,the better we can speak it. 我们越多说英语就能说得越好
+The more you have,the more you want. 欲望是无止境的
+The more you know,the further you go. 你懂得越多，就走得越远
+the most difficult thing is to decide to offer one's life. 最困难的事是决定献出生命
+The music really turns me off. 这音乐实在使我厌烦。
+The road being widened leads to the railway station. 正在拓宽的那条道路通向火车站
+The room is furnished with some old furniture 这间房布置了几件旧家具
+The secret of success is constancy of purpose. 成功的秘诀在于持之以恒
+The strongest man cannot alter he law of nature. 再强大的人也不能改变自然的规律
+The sun affects tremendously both the mind and body of a man. 太阳对人的身体和精神都有极大的影响
+The visitors are arriving at 3 o'clock. 参观者将在下午三点到达
+The volume of a gas increases more quickly than that of a liquid. 气体体积增加的速度比液体快
+The young man made up another story to make the children happy. 那个年轻人又编了个故事逗孩子们开心
+There are much more people in the park at weekend than usual. 周末公园里的人比平时多多了
+There is not a marked difference in size between China and the United States of America. 中美两国在面积上相差并特别大
+They eat fast food when they are going to work and coming home from work. 他们在上下班的路上吃快餐
+They did not need to worry a lot about the safety of the new product. 他们不必为新产品的安全担心
+They have been working together fro three months and have come to know each other better. 他们一起工作了三个月，相互之间也更了解了。
+They sold the old house yesterday. 昨天他们把那旧房子卖了
+They who know nothing fear hothing. 无知者无畏
+Things done cannot be undone. 木已成舟
+This street will be widened. 这条大街将要加宽
+This is as true of nations as it is of individuals. 国家是这样，个人也是这样
+Though I tried to make him change his mind,I failed completely. 尽管我想让他改变主意，但我彻底失败了
+Though her home is far away from the school,she is never late. 虽然学校离家很远，她从不迟到
+Tom has made many friends since he came to Shanghai the year before. 自从前年来到上海，汤姆已结交了很多朋友
+V
+Vegetables must be washed clean before being eaten. 蔬菜在食用前必须洗干净。
+W
+We are sure that they'll finish the work on time. 我们相信他们会按时完成这项工作
+We must read as much as possible. 我们没有取得什么进展。
+We never know the love of the parents until we become parents ourselves. 不养儿不知父母恩
+We shall overcome all the difficulties so long as we study hard and in a right way. 只要我们学习努力，而且学习得法，我们就能克制学习中的一切困难。
+We should keep it in mind that our country is a developing one. 我们应牢记在心，我国是一个发展中国家。
+We should take at least one bath every day. 我们每天至少应当洗一次澡
+We want to make sure the airport is safe and secure. 我们要确认机场是安全的
+We will neither get sick nor suffer pain. 我们将来既不会生病也不会承受痛苦
+We won't attack others unless we are attacked. 人不犯我我不犯人
+Weakened by the successive storms,the bridge was no longer safe. 几次连续下暴雨后桥不太牢固，因此不再安全了
+What did your friend write about in her letter? 你朋友在她信中写了些什么？
+What he said at the meeting is of great importance. 他在会上说的话很重要
+What he said did not annoy me much,for I knew he did not mean it. 我并不在乎他所说的，我知道他不是那个意思。
+What would you like to drink, mineral water or tea? 你喜欢喝点什么，矿泉水还是茶水？
+Whatever you do will help us improve our English. 不论你做些什么，都有助于提高我们英语水平
+Whatever is worth doing should be done well. 任何值得做的事情都应该做好。
+When he woke up,he found himself alone in the room. 他醒来时，发现只有他一个人在房间里
+When she was eighteen,she was independent of her parents. 当她十八岁时，她便离开父母独立生活了。
+Which do you prefer,art or music? 你更喜欢什么，是艺术还是音乐？
+While water can carry a boat,it can also overturn it. 水能载舟，也能覆舟
+Why don't you find a job and end this dependence upon your parents? 你为何不找个工作，不在依靠你的父母呢？
+Will you please try to find out for me what time the train arrives? 能不能请你帮我查查火车什么时候到？
+Wit and will strive for the victory. 智慧加毅力一定会成功
+Would you mind my smoking here in the office now? 我现在在办公室抽烟，你介意吗？
+Y
+You are clever enough to pass the exam. 你很聪明，能通过考试。
+You can give it to whoever you like. 你喜欢给谁就给谁
+You can buy water inside. 你可以在里面买水喝
+You'd better go quickly before I change my mind. 趁着我还没有改变主意，你赶快走吧。
+You'd better put the food within the boy's reach. 你最好把吃的东西放在孩子够得着的地方
+You might have been busy yesterday. 你昨天可能很忙吧
+You mustn't use your mobile phones in class. 你千万不能上课时拨打手机。
+You never know what you can do till you try. 惟有试过才知道自己的能力。
+You speak as if you were my teacher. 你说起话来好像我老师。
+下面是19年9月统考新出的英译汉
+The shop is open till ten at night every day. 商店每天营业到晚上十点
+How long will it take us to get there? 我们到那儿要多长时间？
