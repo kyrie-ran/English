@@ -100,6 +100,7 @@ You needn't go there anymore.He already knows about it. 你不必去了，他已
 You should look around before you cross the street. 过马路前，你应该向四周看看。
 
 ### important
+A car is made up of many different parts. 汽车由许多不同的部件组成。
 A dog is always well-known as a clever and friendly animal. 在动物中，狗素以其聪明与和善而著称。
 A good memory is a great help in learning a language. 好的记忆力有助于语言的学习。
 A teacher should have patience in his work. 当老师应当有耐心
